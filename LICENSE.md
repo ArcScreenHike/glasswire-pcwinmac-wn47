@@ -1,4 +1,4 @@
-# 
+# Professional GlassWire extensions for Mac OS | Exclusive GlassWire extensions for PC Windows. Featuring split tunneling and dns leak protection — optimized for maximum performance on every platform.
 
 
 
